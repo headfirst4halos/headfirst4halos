@@ -1,5 +1,7 @@
 ## Hi there 👋
 
+![fav](https://files.catbox.moe/uj4d7v.png)
+
 <!--
 **headfirst4halos/headfirst4halos** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
