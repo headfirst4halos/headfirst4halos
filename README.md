@@ -1,3 +1,4 @@
-<p align="center"> <img src="https://files.catbox.moe/uj4d7v.png"> </p>
+<p align="center"> <img src="https://files.catbox.moe/p59hpm.png"> </p>
 
-<p align="center">won't you die tonight for love? (baby, join me in death)</p>
+<p align="center">" arthur, oh, arthur. i was just starting to dream the silliest and softest of dreams ... "</p>
+
